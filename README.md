@@ -1,2 +1,2 @@
-# xn--6ca2t.github.io
+# xn--6ca2t
 æœ
